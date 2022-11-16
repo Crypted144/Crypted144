@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Crypted144
+- 👀 I’m interested in minecraft modding, linux and some other things.
+- 🌱 I’m currently learning java and minecraft modding.
+- 📫 You can reach me on discord: Crypted#5118
